@@ -1,2 +1,1 @@
-# ceekay
-digital marketing, affiliate marketing, web design
+ckaydigitals is a dynamic marketing and SEO agency specializing in elevating brand visibility through strategic SEO optimizations. We work directly with leading brands like Plug Talk Media (https://plugtalk.media) for comprehensive OOH solutions and NY Taxi Ads (https://nytaxiads.com) for targeted NYC transit advertising, ensuring your message makes an unforgettable impact in the real world.
